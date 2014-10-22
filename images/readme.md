@@ -1,1 +1,2 @@
-Miejsce dla Grzecha.
+Pliki graficzne.
+Witam wsyzstkich i pozdrawiam Grzeisek
